@@ -1,1 +1,1 @@
-# Projects sunmitted by me for evaluation
+# Projects submitted by me for evaluation
